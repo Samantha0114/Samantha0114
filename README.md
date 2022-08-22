@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Samantha0114
+- 👀 I’m interested in running, backpacking, and video games
+- 🌱 I’m currently learning how to learn how to use VS code more efficently and Web design.
+- 💞️ I’m looking to collaborate on Clinical Database design. 
+- 📫 How to reach me Samantha.Stebleton@nurs.utah.edu or by number 740-856-2625
